@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @tripycoder
+- 👀 I’m interested in being trippy
+- 🌱 I’m currently learning about trips
+- 💞️ I’m looking to collaborate on tripper
